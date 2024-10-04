@@ -1,2 +1,2 @@
-# jajko.github.io
+https://goszka2137.github.io/Jajko/
 
